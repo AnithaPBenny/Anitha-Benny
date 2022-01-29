@@ -1,4 +1,4 @@
 # Hey I'm *Anitha Benny*
 ### :wave: About me
-      * Computer Science Engineering Student
+      * Computer Science Engineering Student 👩‍💻
       * 
